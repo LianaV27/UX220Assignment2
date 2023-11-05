@@ -1,1 +1,1 @@
-About page
+Hello, my name is Liana. I am a UX student at Laurier.

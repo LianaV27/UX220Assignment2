@@ -1,1 +1,1 @@
-Contact information here
+vald2692@mylaurier.ca
